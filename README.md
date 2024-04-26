@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Leventcan35
 - 👀 I’m interested in software
 - 🌱 I'm currently learning pyton and c##
-- 💞️ I’m looking to collaborate on ...
+- 💪 I'm open to innovations
 - 📫 How to reach me ...
   CONTACT: leventcan2021@gmail.com
 
